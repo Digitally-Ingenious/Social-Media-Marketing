@@ -1,0 +1,2 @@
+# Social-Media-Marketing
+Digitally Ingenious is an advertising agency that specializes in driving successful results for clients with our Google, Facebook, Instagram, LinkedIn, Youtube and Snapchat advertising solutions. We deliver a full-service management offering to increase your customer base which ultimately turns into the success of your brand.  Our solutions are built to drive results in lead generation, revenue growth, and brand engagements which leads to, high ROI social advertising campaigns.
